@@ -1,4 +1,6 @@
 # sturdy-potato
-What's sturdy?
 
-Potatos are a very caloric food, it can serve a lot for doing sports.
+Se acabó el inglés, ya estoy harto. 
+Así no hay quien entienda nada y no es cómodo. Hasta luego.
+
+Bueno, quizás haya sido demasiado radical, el inglés me parece bien, pero depende del momento.
