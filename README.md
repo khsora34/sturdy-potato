@@ -7,4 +7,4 @@ Bueno, quizás haya sido demasiado radical, el inglés me parece bien, pero depe
 
 Estoy muy en desacuerdo con que las ovejas tengan que ser propiedad de un granjero. ¡Queremos libertad!
 
-Esto que estoy escribiendo no quiero hacerlo en realidad.
+Vale, creo que ya he quitado la frase innecesaria.
